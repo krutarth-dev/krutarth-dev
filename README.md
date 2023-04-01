@@ -6,7 +6,7 @@
 
 - 🌱 I’m currently learning **ANN/CNN/Object Detection**
 
-- 💬 Ask me about **Data Analtics/Data science**
+- 💬 Ask me about **Data Analytics/Data science**
 
 - 📫 How to reach me **ozakrutarth2002@gmail.com**
 
