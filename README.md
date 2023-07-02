@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **ozakrutarth2002@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/178FcV1CMFSwMj6DnrsbUgipTk_ZkR50l/view?usp=sharing]
+- 📄 Know about my experiences [https://drive.google.com/file/d/1F_DSve4evArKRu-0ANHtujescH_cnDFj/view?usp=sharing]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
